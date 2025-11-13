@@ -14,3 +14,7 @@ cevin rizki octavian
 
 praktikum Analisa big data ekonomika
 
+
+
+yantho
+
