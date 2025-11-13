@@ -12,13 +12,5 @@ cevin rizki octavian
 
 
 
-praktikum
-
-Analisa
-
-big
-
-data
-
-ekonomika
+praktikum Analisa big data ekonomika
 
